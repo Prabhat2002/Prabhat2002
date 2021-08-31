@@ -16,8 +16,10 @@
 
        Email : prabhatm580@gmail.com
 
-      LinkedIn:-https://www.linkedin.com/mwlite/in/prabhat-mishra-71265a1b6
+       LinkedIn:-https://www.linkedin.com/mwlite/in/prabhat-mishra-71265a1b6
 
        WhatsApp : 7007308909
+
+- 🏏 My hobbies are watching and playing cricket , singing music and poetries.
 
 
